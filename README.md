@@ -1,5 +1,5 @@
-### boas vindas ao meu perfil 🥇
+### boas vindas ao meu perfil 🥇⚛️
 
 _meu nome é anonimo_ 👨‍🦲
 
-estudo em silvestre 
+- estudo em silvestre
